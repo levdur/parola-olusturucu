@@ -1,1 +1,1 @@
-Parola olusturucu
+Parola  olusturucu
